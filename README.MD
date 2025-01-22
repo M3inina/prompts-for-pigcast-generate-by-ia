@@ -62,7 +62,7 @@ Resultado:
 
 ## 🛠️ Pigcast do Porquinho Rich: coach que te tirará da lama em grande estilo.
 
-
+https://photos.google.com/share/AF1QipNeRA9vZuDPajCsR3aMCyLlawfVtl2NPo0Sctz1TJd6_dw2SjzqkG2QBuLQVZROrQ/photo/AF1QipNS7_ImH7T-_XEMsbt1Yu7zdvByxWWEUEIr7MEE?key=RVRVVkh4Z0hzX2s5dkc4eFBUR1VVOTRDM0toWm1B
 
 
 
